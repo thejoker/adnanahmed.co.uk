@@ -1,1 +1,1 @@
-Adnan Ahmed &#8212; React Native Engineer
+Adnan Ahmed &#8212; Software Engineer
